@@ -6,6 +6,8 @@ Bảo vệ máy tính của bạn khỏi virus, phần mềm độc hại và c�
 
 ## 📥 Tải về phần mềm
 
+https://drive.google.com/file/d/136DKLPW3m5sZ5CWu22UtZZVXBlv4cDV9/view?usp=sharing
+
 
 ### ✅ Dành cho Windows
 - Hỗ trợ Windows 10 / 11
