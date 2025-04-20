@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/8e9b2027-9767-4cb4-ba10-36fd09daa73e)# 🛡️ Kapersky Free Crack
+# 🛡️ Kapersky Free Crack
 
 Bảo vệ máy tính của bạn khỏi virus, phần mềm độc hại và các mối đe dọa mạng mới nhất.
 
