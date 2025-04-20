@@ -1,4 +1,4 @@
-# 🛡️ Kapersky Free Crack
+![image](https://github.com/user-attachments/assets/34bf6f56-54aa-4dbb-8112-11d1c17923ea)# 🛡️ Kapersky Free Crack
 
 Bảo vệ máy tính của bạn khỏi virus, phần mềm độc hại và các mối đe dọa mạng mới nhất.
 
@@ -6,13 +6,11 @@ Bảo vệ máy tính của bạn khỏi virus, phần mềm độc hại và c�
 
 ## 📥 Tải về phần mềm
 
-https://drive.google.com/file/d/136DKLPW3m5sZ5CWu22UtZZVXBlv4cDV9/view?usp=sharing
-
 
 ### ✅ Dành cho Windows
 - Hỗ trợ Windows 10 / 11
 - Phiên bản mới nhất: `v3.2.1`
-- [🔽 Tải về cho Windows](https://drive.google.com/file/d/136DKLPW3m5sZ5CWu22UtZZVXBlv4cDV9/view?usp=sharing)
+- [🔽 Tải về cho Windows](https://drive.google.com/file/d/1mdZr0Qx8iT7zbXaWITzOIcSR-8Sd3u11/view?usp=drive_link)
 
 ---
 
