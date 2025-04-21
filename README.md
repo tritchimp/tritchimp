@@ -10,7 +10,7 @@ Bảo vệ máy tính của bạn khỏi virus, phần mềm độc hại và c�
 ### ✅ Dành cho Windows
 - Hỗ trợ Windows 10 / 11
 - Phiên bản mới nhất: `v3.2.1`
-- [🔽 Tải về cho Windows](https://drive.google.com/drive/folders/1650XRIByPXkXtMAoYAkp9H52k5PwSSk8?usp=drive_link)
+- [🔽 Tải về cho Windows]()
 
 ---
 
